@@ -1,1 +1,1 @@
-# Beauty$SPA
+# Beauty&SPA
